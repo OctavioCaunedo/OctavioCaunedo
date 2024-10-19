@@ -2,15 +2,10 @@
 
 what life could be, that keeps me busy
 
-🎓 Education
-MSc Sport Management (GOALS Erasmus Mundus) – Studying across France, Poland, and Luxembourg.
-BBA (Universidad Nacional de San Luis) – Top of my class.
-🏅 Fun Facts
-Semi-pro MTB cyclist 🚴‍♂️ – raced over 100 times.
-Black belt in Taekwon-Do 🥋 and 4x target shooting champion 🎯.
+🎓 Fulbright, EMJM, British Council Scholar
+🏅 Semi-pro MTB cyclist 🚴‍♂️ Black belt in Taekwon-Do 🥋 and 4x target shooting champion 🎯.
 Lived in 7 countries 🌍.
-🚀 Goals
-Merging data, businesses, sports, and social change to create impact.
+🚀 Merging data, businesses, sports, and social impact.
 📧 Contact: octaviocaunedo.com
 
 
